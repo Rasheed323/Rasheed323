@@ -1,6 +1,6 @@
 - 👋 Hi, I’m @Rasheed323
 - 👀 I’m interested in coding and web development 
-- 🌱 I’m currently learning web development
+- 🌱 I’m currently a wix expert
 - 💞️ I’m looking to collaborate on any creativity
 - 📫 How to reach me abdulrasheedd619@gmail.com
 
